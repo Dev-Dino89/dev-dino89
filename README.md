@@ -17,7 +17,7 @@
  
 <br>
  
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+### 90% DO SUCESSO SE BASEIA EM SIMPLESMENTE INSISTIR!
  
 <div> 
 
